@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Q1e23r
+- 👀 I’m interested in Math, Physics, and Chemistry.
+- 🌱 I’m currently learning Algebra 1 level Math, and Physics.
+- 💞️ I’m looking to collaborate on academical resources, and practice worksheets related to Mathematics. (Algebra 1, Geometry, Algebra 2, and Trigonometry.) As well as explore different topics in physics and chemistry.
+- 😄 Pronouns: He.
+- ⚡ Fun fact: I enjoy participating in sports such as cross country, volleyball, and swimming.
